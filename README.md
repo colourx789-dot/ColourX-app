@@ -11,4 +11,4 @@ No user accounts are required to use ColourX.
 
 If you have any questions about this Privacy Policy, contact:
 
-[your business email]
+[colourx789@gmail.com]
